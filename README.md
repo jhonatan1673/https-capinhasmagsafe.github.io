@@ -1,0 +1,1 @@
+# https-capinhasmagsafe.github.io
